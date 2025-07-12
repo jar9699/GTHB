@@ -1,1 +1,1 @@
-# GTHB!
+# GTHB
